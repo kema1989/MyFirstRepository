@@ -4,4 +4,6 @@
 * ”ехать в  анаду
 * ѕеревестись в Thompson Rivers University
 * успешно закончить бакалавриат по направлению Computing Science and Mathematics
+jvjhbhjbjknnkjnjn
+* успешно закончить бакалавриат по направлению Computing Science and Mathematics
 gcxvdzfghbndzedygjgxdstgn gcf nbbbbbbbbbbbbbbb
