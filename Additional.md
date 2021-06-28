@@ -4,3 +4,4 @@
 * Уехать в Канаду
 * Перевестись в Thompson Rivers University
 * успешно закончить бакалавриат по направлению Computing Science and Mathematics
+gcxvdzfghbndzedygjgxdstgn gcf nbbbbbbbbbbbbbbb
